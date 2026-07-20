@@ -1,1 +1,1 @@
-### Thingking Machine
+### Debating Machine
